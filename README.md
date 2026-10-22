@@ -1,1 +1,1 @@
-https://ashikwd.github.io/personal_portfolio_by_ashikuzzaman/
+https://ashikwd.github.io/Personal_Portfolio_by_Ashikuzzaman/
